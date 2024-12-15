@@ -1,0 +1,2 @@
+# Ghoziin-
+Saya belum tahi
